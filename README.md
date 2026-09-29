@@ -219,4 +219,4 @@ America's Army Special Forces is offered as a full free version, with all featur
 Download America’s Army Special Forces today and step into the shoes of a true soldier!
 
 ---
-**Last updated:** 2026-09-29 08:01:51 UTC
+**Last updated:** 2026-09-29 15:27:38 UTC
